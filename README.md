@@ -1,1 +1,1 @@
-# radar-test-repo
+AKIAIOSFODNN7EXAMPLE
